@@ -1,1 +1,1 @@
-https://tarun-badodiya.github.io/EXDem/index.html
+https://tarun-badodiya.github.io/EXDem/
